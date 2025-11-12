@@ -8,7 +8,7 @@
 <img width="2500" height="2000" alt="image" src="https://github.com/user-attachments/assets/088e17d2-6423-47a2-8e3e-045c5d5b1250" /> 
 
 
-hii i go by kory / mac ^.^ i am a minor - 13 y/o and im lf friends on pt atm! (please be my friend dude 💔) 
+hihi im kory or coil im lf for friends because im a lonely mf 💔 (PLEAS INT W/ ME IM SUPA FRIENDLY)
 
 fav games : adopt me , catalog ava creator and phighting 🫘
 
